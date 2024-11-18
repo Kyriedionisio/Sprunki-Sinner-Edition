@@ -2,6 +2,8 @@
 
 [Play Sprunki Sinner Edition!](https://sprunkisinneredition.com)
 
+[Play More Mods!](https://sprunki.app)
+
 Dive into the **Sprunki Sinner Edition**, a revolutionary transformation of the Incredibox experience that plunges players into a world where sinister beats meet creative expression. This mod reinvents the core gameplay with a dark twist, introducing the infamous "Sinner Mode" that has captivated the community with its unique blend of horror and rhythm.
 
 ## About the Sprunki Sinner Edition
