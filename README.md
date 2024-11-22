@@ -1,53 +1,63 @@
-# Sprunki Sinner Edition - Play Sprunki Incredibox Game Online Free!
+# Sprunki Sinner Edition (a.k.a. Sprunki Kiss Edition) - Play Sprunki Incredibox Game Online Free!
 
-[Play Sprunki Sinner Edition!](https://sprunkisinneredition.com)
-
+[Play Sprunki Sinner Edition!](https://sprunkisinneredition.com/)  
 [Play More Mods!](https://sprunki.app)
 
-"Sprunki Sinner Edition" is a unique mod of the popular music game Incredibox, developed by @Harryaltered on the Cocrea platform.
+**"Sprunki Sinner Edition"**, also known as **Sprunki Kiss Edition**, is a standout mod of the beloved music game Incredibox, developed by @Harryaltered on the Cocrea platform.
 
-Dive into the **Sprunki Sinner Edition**, a revolutionary transformation of the Incredibox experience that plunges players into a world where sinister beats meet creative expression. This mod reinvents the core gameplay with a dark twist, introducing the infamous "Sinner Mode" that has captivated the community with its unique blend of horror and rhythm.
+Dive into the **Sprunki Sinner Edition** and discover the darker, more intriguing world of the **Kiss Edition**, where haunting beats meet creative freedom. This mod revolutionizes the original gameplay with a dramatic twist, introducing the notorious **"Sinner Mode"**, a feature that has enthralled players with its fusion of rhythm, horror, and mystery.
 
-## About the Sprunki Sinner Edition
+---
 
-This groundbreaking mod is characterized by its distinctive "Sinner Mode," which has become legendary in the community for its impact:
+## About the Sprunki Sinner Edition (Sprunki Kiss Edition)
 
-* **Sinner Mode Activation**: The iconic combination of placing tunner first, followed by simon, unleashes the true essence of the Sinner experience
-* **Dark Atmosphere**: Visual elements that enhance the sinister theme
-* **Haunting Soundscape**: Carefully crafted audio that creates an immersive horror experience
-* **Community Phenomenon**: The mod that sparked the famous "YOU KNOW WHO YOU ARE" movement
+This remarkable mod is known for its defining feature, the legendary **Sinner Mode**, and its alternate identity as **Sprunki Kiss Edition**, showcasing a creative and thematic evolution:
 
-## How to Experience Sinner Mode
+- **Sinner Mode Activation**: The iconic sequence of placing *tunner* first and then *simon* brings the dark essence of Sinner Mode to life.
+- **Kiss Edition Vibes**: A blend of dark romance and mystique, adding emotional depth.
+- **Immersive Visuals**: A rich, atmospheric design tailored to the "sinner" and "kiss" themes.
+- **Eerie Audio**: A masterful soundscape that sends shivers down your spine.
+- **Community Legacy**: The phenomenon that sparked the "YOU KNOW WHO YOU ARE" wave and continues to inspire fans worldwide.
 
-1. **Master the Activation**:
-   * Place tunner as your first character
-   * Position simon next to tunner
-   * Watch as the transformation unfolds
+---
 
-2. **Explore the Darkness**:
-   * Experiment with different character combinations
-   * Discover hidden sound patterns
-   * Create your own sinister symphonies
+## How to Unlock the Sinner Mode (Kiss Edition Mode)
 
-## What Makes Sinner Edition Special
+1. **Follow the Steps**:
+   - Start by placing *tunner* as your first character.
+   - Add *simon* right next to tunner.
+   - Witness the magical transformation into **Sinner Mode** (or Kiss Mode)!
 
-The **Sprunki Sinner Edition** has become a cultural phenomenon, known for:
+2. **Experiment Freely**:
+   - Mix different characters to discover new patterns and sounds.
+   - Craft your own haunting melodies and explore hidden effects.
 
-* **Community Impact**: Inspiring passionate reactions like "IM SMOL THE SINNER CEO" and "SINNER FTW!!!!"
-* **Emotional Connection**: Creating powerful responses from players - "I LOVE THIS SO MUCH AAHHHHHHHH"
-* **Unique Identity**: The mod that turned "sinnerless" into "sinner"
-* **Cultural Movement**: Spawning countless memes and inside jokes within the community
+---
 
-## Community Reactions
+## What Makes Sprunki Kiss Edition Special
 
-The mod has generated an unprecedented wave of enthusiasm:
+The Sprunki Sinner Edition (a.k.a. Sprunki Kiss Edition) stands out for its community-driven impact and artistic innovation:
 
-> "You know who you are" ME BRO ME ME ITS ME GUYS HEY I LOVE SINNER. IM SMOL THE SINNER CEO, SINNER'S KID. HEY HARRY I LOVE YOU BRO/P IM CRYING.... peakest mod ever 10/10 nothing can beat it. SINNER FTW!!!!"
+- **Community Love**: Fans resonate deeply with its emotional themes, reflected in comments like, "I LOVE THIS SO MUCH AAHHHHHHHH."
+- **Cultural Icon**: Spawning countless memes, inside jokes, and new slang, from "sinnerless" to "sinner" and beyond.
+- **Unique Identity**: A bold reinterpretation of Incredibox that blends haunting beauty with musical creativity.
+- **Lasting Legacy**: From its iconic quotes to heartfelt fan reactions, this mod leaves a lasting impression.
 
-## Impact and Legacy
+---
 
-The Sprunki Sinner Edition has transcended typical mod status to become a cultural touchstone in the Incredibox community. Its unique blend of horror elements and the infamous Sinner Mode has created a dedicated following that continues to grow, with players constantly discovering new ways to experience its dark charm.
+## Fan Reactions
 
-Join the phenomenon that's taken the Incredibox community by storm and discover why players are calling it the "peakest mod ever 10/10." Your journey from "sinnerless" to "sinner" awaits.
+The Sprunki Kiss Edition has generated an overwhelming response from players:
 
-_"Thank you... For sinnering, i was so sinnerless I WAS SO SINNER"_ - Community Member
+> "YOU KNOW WHO YOU ARE" — It's ME!!! I LOVE SINNER SO MUCH AHHHH! This is the peakest mod ever, 10/10, and nothing can top it. SINNER FTW!!!!  
+> Thank you... For sinnering. I was so sinnerless, I WAS SO SINNER."
+
+---
+
+## Join the Movement
+
+The **Sprunki Sinner Edition** (Sprunki Kiss Edition) has evolved from being just a mod into a full-fledged cultural movement within the Incredibox community. Its eerie charm, interactive storytelling, and memorable gameplay have inspired countless fans to embrace the "sinner" identity.
+
+Take your first step into the dark and thrilling world of the **Kiss Edition** and experience why fans call it the "peakest mod ever." Your transformation from "sinnerless" to "sinner" begins now.
+
+> _"I used to be sinnerless... Now I am SINNER."_ — Dedicated Fan
