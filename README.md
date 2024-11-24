@@ -7,7 +7,7 @@
 
 Dive into the **Sprunki Sinner Edition** and discover the darker, more intriguing world of the **Kiss Edition**, where haunting beats meet creative freedom. This mod revolutionizes the original gameplay with a dramatic twist, introducing the notorious **"Sinner Mode"**, a feature that has enthralled players with its fusion of rhythm, horror, and mystery.
 
-[![Watch the video](https://img.youtube.com/vi/80OaBBRlp3g/0.jpg)](https://www.youtube.com/watch?v=80OaBBRlp3g)
+[![Watch the video](https://img.youtube.com/vi/80OaBBRlp3g/0.jpg)](https://www.youtube.com/watch?v=Y4KKxaawZ_4)
 
 https://www.youtube.com/watch?v=80OaBBRlp3g
 
