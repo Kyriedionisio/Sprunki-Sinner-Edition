@@ -9,7 +9,7 @@ Dive into the **Sprunki Sinner Edition** and discover the darker, more intriguin
 
 [![Watch the video](https://img.youtube.com/vi/80OaBBRlp3g/0.jpg)](https://www.youtube.com/watch?v=Y4KKxaawZ_4)
 
-https://www.youtube.com/watch?v=80OaBBRlp3g
+https://www.youtube.com/watch?v=Y4KKxaawZ_4
 
 ---
 
